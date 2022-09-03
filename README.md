@@ -8,6 +8,18 @@ Anyway, this is a living resources and will update regularly with latest Adversa
 
 You can help by sending Pull Requests to add more information.
 
+
+
+MY other YouTube channel :    https://www.youtube.com/channel/UCO64oEbHjaV71XBigCEZZtw
+MY other YouTube channel 02 : https://www.youtube.com/watch?v=O7CW1XYUS18&list=PLyINyH8wqxgnvyVhgTarWWPIvN0rEGIiY
+
+#following my all social site: 
+
+LinkedIn: https://www.linkedin.com/in/devmehedi101/
+twitter : https://twitter.com/devmehedi101
+Facebook page: https://www.facebook.com/devmehedi101
+
+
 Table of Contents
 =================
 
